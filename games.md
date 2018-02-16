@@ -1,0 +1,3 @@
+Paciência
+Cacheta
+21
