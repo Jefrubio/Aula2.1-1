@@ -1,1 +1,3 @@
-# Aula2.1
+Meryl Streep
+Natalie Portman
+Leonardo DiCaprio
